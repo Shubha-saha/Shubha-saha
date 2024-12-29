@@ -1,6 +1,6 @@
 ### Hi there 👋, This is Shubha Saha
 #### Web Developer
-![Web Developer](https://x.com/_shubha_saha/header_photo)
+![Web Developer](https://pbs.twimg.com/profile_banners/1873366246663806976/1735481841/1500x500)
 
 Hey, welcome to my corner and I am glad you are here. I am working on a web developer and my first purity is client satisfaction.
 
